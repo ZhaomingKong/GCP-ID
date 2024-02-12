@@ -1,1 +1,1 @@
-# GCP-ID (coming soon after-after Spring Festival)
+# GCP-ID (Code coming soon~after Spring Festival ^_^)
